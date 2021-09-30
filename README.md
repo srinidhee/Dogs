@@ -18,4 +18,4 @@ There are many reasons why having a dog as an addition to your family is very be
 
 If you were hesitiating before, then hesitate no more! Now the last step is to just find the best place for you to get your pet today. The link below is a great site from where you can get your dog and it even shows a lot of pictures of the animals there as well. So what are you waiting for? Go get your buddy now! 
 
-[Adoption Link](https://www.seaaca.org/) 
+[Adoption Website Link](https://www.seaaca.org/) 
